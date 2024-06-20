@@ -30,7 +30,7 @@ Weeping Plebs transcends being just an NFT project; it's a journey of laughter, 
 
 This white paper will be expanded upon—stay tuned! ... Fade us now and weep later.
 
-
+Telegram: https://t.me/+KBVDTF06gWs3Y2Mx
 
 ![white-paper-2](https://github.com/WEEPINGPLEBS/WEEPING-PLEBS/assets/173321457/5e0814f1-56c7-4c75-a236-e05bdc88175c)
 ![roadmap](https://github.com/WEEPINGPLEBS/WEEPING-PLEBS/assets/173321457/604cdaca-a029-446f-a72d-a9b25a596b5b)
