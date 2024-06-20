@@ -29,3 +29,8 @@ Conclusion:
 Weeping Plebs transcends being just an NFT project; it's a journey of laughter, learning, and community engagement. With a trusted founder, a talented team, and an innovative concept, Weeping Plebs invites you to join its community and embrace the excitement of the crypto and NFT space. Join our Discord, get to know our team, and ask any questions as we develop our game and animated series on our way to success!
 
 This white paper will be expanded upon—stay tuned! ... Fade us now and weep later.
+
+
+
+![white-paper-2](https://github.com/WEEPINGPLEBS/WEEPING-PLEBS/assets/173321457/5e0814f1-56c7-4c75-a236-e05bdc88175c)
+![roadmap](https://github.com/WEEPINGPLEBS/WEEPING-PLEBS/assets/173321457/604cdaca-a029-446f-a72d-a9b25a596b5b)
